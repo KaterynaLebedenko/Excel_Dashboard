@@ -1,3 +1,4 @@
+![Исходный размер  Beige Modern Elegant Personal LinkedIn Banner](https://github.com/KaterynaLebedenko/Excel_Dashboard/assets/60528022/573f433c-396a-4b30-bb99-e641b3e08fe7)
 
 ###
 
